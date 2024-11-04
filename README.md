@@ -1,1 +1,0 @@
-# techUP_study
